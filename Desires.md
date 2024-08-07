@@ -3,6 +3,8 @@ Desires born of ancient kin,
 Life's dance, an intertwined dream.  
 
 
+![TheVirus](https://github.com/user-attachments/assets/3f906246-c311-492d-a368-1e04f0afae75 =250x250)
+
 
 In the bustling metropolis of Newhaven, beneath the sheen of everyday life, lay a microscopic universe, vibrant and unseen. VitaNexus, an ancient virus, teemed with purpose, threading its way through the labyrinth of Julian Reed’s body. For VitaNexus, Julian was a landscape of endless wonder, a galaxy of cells and signals, where life’s primordial dance played out in the shadows of the familiar.
 
