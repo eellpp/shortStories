@@ -9,7 +9,7 @@ Desires born of ancient kin,
 Life's dance, an intertwined dream. 
 
 
-In the bustling metropolis of Newhaven, beneath the sheen of everyday life, lay a microscopic universe, vibrant and unseen. VitaNexus, an ancient virus, teemed with purpose, threading its way through the labyrinth of Vinayak Ramachandran’s body. For VitaNexus, Vinayak was a landscape of endless wonder, a galaxy of cells and signals, where life’s primordial dance played out in the shadows of the familiar.
+In the bustling metropolis of Punggol, beneath the sheen of everyday life, lay a microscopic universe, vibrant and unseen. VitaNexus, an ancient virus, teemed with purpose, threading its way through the labyrinth of Vinayak Ramachandran’s body. For VitaNexus, Vinayak was a landscape of endless wonder, a galaxy of cells and signals, where life’s primordial dance played out in the shadows of the familiar.
 
 Vinayak Ramachandran, a man of words and weary contemplation, stood at the edge of his own existence, grappling with desires that surged and swelled like monsoon rivers. He sought control in the rhythms of meditation, in the isolation of a woodland cabin where silence clung to the trees like old secrets. But his desires were relentless, a persistent tide that pulled him back to the cacophony of the city, to its entangled lives and electric nights.
 
